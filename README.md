@@ -3,7 +3,9 @@
 
 
 ✧ soren 
+
 ✧ transmasc 
+
 ✧ queer
 
 
@@ -14,4 +16,5 @@
 byi
 
 ✧ not too keen on public channels. whisper to interact
+
 ✧ i don't bite, i promise. 
